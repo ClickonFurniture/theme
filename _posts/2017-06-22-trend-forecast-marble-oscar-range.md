@@ -1,0 +1,32 @@
+---
+ID: 1245
+post_title: 'Trend Forecast: The Oscar Range'
+author: Sarah Vize
+post_excerpt: ""
+layout: post
+permalink: >
+  https://blog.clickonfurniture.com.au/trend-forecast-marble-oscar-range
+published: true
+post_date: 2017-06-22 12:00:31
+---
+Marble has been on trend for quite a while, and the trend is not slowing down. Clickon has reinvented the look in the new Oscar range by combining a marble top with a simple black metal frame, the simplicity of the design draws attention to the luxuriousness of the item and is sure to be a talking point in any home.
+<h6 style="text-align: center"><img class="aligncenter wp-image-1221 size-large" src="http://blog.clickonfurniture.com.au/wp-content/uploads/2017/06/Oscar-TV-Unit-743x1024.jpg" alt="Oscar Marble TV Unit " width="743" height="1024" />The Oscar TV Unit styled with:<a href="http://www.clickonfurniture.com.au/brent-rosenberg-ivy">Ivy Print</a> by Brent Rosenberg • <a href="http://www.clickonfurniture.com.au/lubin-mirror">Lubin Mirror</a> • <a href="http://www.clickonfurniture.com.au/osca-table-lamp">Osca Table Lamp</a> • Cotton Velvet <a href="http://www.clickonfurniture.com.au/cotton-velvet-cushion-with-insert">Cushions</a> • <a href="http://www.clickonfurniture.com.au/twig-cube">Twig Cube</a> • <a href="http://www.clickonfurniture.com.au/carlo-marble-vase-short">Green</a> and <a href="http://www.clickonfurniture.com.au/carlo-marble-vase-tall">Black</a> Carlo Marble Vase • <a href="http://www.clickonfurniture.com.au/brand/bloomingville/stoneware-vase-blue">Stoneware Vase</a></h6>
+<h3>The Range</h3>
+The range consist of four key items: the TV Unit, Console Table, Coffee Table and Side Table. They  can be used together in your home as a set or styled with your existing or other new furniture. The simplicity and elegance of the range act as a blank canvas for your personal style and can be used to create a number of different looks for your home.
+
+<img class="aligncenter size-large wp-image-1233" src="http://blog.clickonfurniture.com.au/wp-content/uploads/2017/06/oscar-range-1024x884.jpg" alt="The Complete Oscar Range" width="809" height="698" />
+
+&nbsp;
+<h3>How To Style It</h3>
+Use textures such as the new Suede Tray from Bloomingville or the timber Segment Tray by CITTA Design to add warmth. The circular shape works well to break up the visual lines of the marble tables. Trays also cause anything that is placed on the tray to look more purposeful.
+<h6 style="text-align: center"><a href="Acessories"><img class="aligncenter size-large wp-image-1239" src="http://blog.clickonfurniture.com.au/wp-content/uploads/2017/06/trays-1024x513.jpg" alt="Acr" width="809" height="405" /></a><a href="http://www.clickonfurniture.com.au/suede-tray-grey">Suede Tray</a> • <a href="http://www.clickonfurniture.com.au/segment-tray">Segment Tray</a></h6>
+Both the TV Unit and the Coffee Table provide ample space to showcase your favourite books and magazines. Select the colour of the book on top carefully to work in with your decor. The Second shelf on the TV Unit can also be used to store your throws and blankets or excess cushions.
+<h6 style="text-align: center"><img class="aligncenter size-large wp-image-1222" src="http://blog.clickonfurniture.com.au/wp-content/uploads/2017/06/IMG_1533-e1497928238512-1024x1024.jpg" alt="" width="809" height="809" />The Oscar Coffee Table styled with: <a href="http://www.clickonfurniture.com.au/suede-tray-grey">Suede Tray</a> • <a href="http://www.clickonfurniture.com.au/brand/bloomingville/stoneware-vase-blue">Stoneware Vase</a> • <a href="http://www.clickonfurniture.com.au/terrazzo-vase">Terrazzo Vase</a> in Snow •  Rustic Green <a href="http://www.clickonfurniture.com.au/flowerpot-rustic-green">Flower Pot</a> • <a href="http://www.clickonfurniture.com.au/hamilton-rug">Hamilton Rug</a> in Deep Dark Blue</h6>
+When choosing vases or decorative elements to be displayed on the top there are a couple of simple tips. Odd numbers always look best and more intriguing to the eye. That being said, having three of the same vase will not necessarily be overly impactful. Instead, use differing heights, textures, shapes or colours to achieve your cluster.
+<h6 style="text-align: center"><img class="aligncenter size-large wp-image-1247" src="http://blog.clickonfurniture.com.au/wp-content/uploads/2017/06/vases-1024x342.jpg" alt="vases" width="809" height="270" />Carlo <a href="http://www.clickonfurniture.com.au/carlo-marble-vase-tall">Marble Vase</a> • <a href="http://www.clickonfurniture.com.au/large-ceramic-vase-with-cork-top">Ceramic Vase</a> with Cork Top • Ceramic <a href="http://www.clickonfurniture.com.au/ceramic-bubble-vase-cool-grey">Bubble Vase</a></h6>
+&nbsp;
+<h6 style="text-align: center"><img class="aligncenter wp-image-1246 size-large" title="The Marble Oscar Coffee Table" src="http://blog.clickonfurniture.com.au/wp-content/uploads/2017/06/IMG_1693-e1498012561506-1024x1024.jpg" alt="" width="809" height="809" />The Oscar Coffee Table styled with: <a href="http://www.clickonfurniture.com.au/prudence-caroline-well-peachy-print">Well Peachy Print</a> by Prudence Caroline Carlo • <a href="http://www.clickonfurniture.com.au/segment-tray">Segment Tray</a> • <a href="http://www.clickonfurniture.com.au/carlo-marble-vase-tall">Marble Vase</a> • <a href="http://www.clickonfurniture.com.au/large-ceramic-vase-with-cork-top">Ceramic Vase</a> with Cork Top • Ceramic <a href="http://www.clickonfurniture.com.au/ceramic-bubble-vase-cool-grey">Bubble Vase</a> • <a href="http://www.clickonfurniture.com.au/puro-tv-board">Puro TV Board</a> • <a href="http://www.clickonfurniture.com.au/fittonia-hanging-bush">Fittonia Hanging Bush</a> • <a href="http://www.clickonfurniture.com.au/ceramic-flowerpot-kit">Flowerpot</a> - Kit • Aquatic Canna <a href="http://www.clickonfurniture.com.au/aquatic-canna-plant">Plant</a></h6>
+<h6 style="text-align: center"></h6>
+&nbsp;
+
+If you need a helping hand with styling your own home use these links to find out more about our <a href="http://blog.clickonfurniture.com.au/styling-consultations">Styling Consultation</a> or <a href="http://blog.clickonfurniture.com.au/style-room-dilemmas-sorted-service">Room Service</a> opportunities or contact your nearest <a href="http://www.clickonfurniture.com.au/showrooms">Clickon Store</a>.
