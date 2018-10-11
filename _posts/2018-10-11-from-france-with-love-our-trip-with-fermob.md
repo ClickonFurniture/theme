@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2018-10-11 15:59:25
 ---
-<p class="p1" style="text-align: center"><span class="s1">Earlier this month, we had the pleasure of being invited to France by Fermob to experience their manufacturing process and gain some insight into their headquarters, as well as a sneak peak at their upcoming products.</span></p>
+<p class="p1" style="text-align: center"><span class="s1">Earlier this month, we had the pleasure of being invited to France by Fermob to experience their manufacturing process and gain some insight into their headquarters, as well as a sneak peek at their upcoming products.</span></p>
 <a href="https://www.clickonfurniture.com.au/fermob-luxembourg-table"><img class="wp-image-1929 size-large aligncenter" src="https://blog.clickonfurniture.com.au/wp-content/uploads/2018/10/LUXEMBOURG_BALAD_Stephane-Rambaud-pour-Fermob-1024x576.jpg" alt="" width="650" height="366" /></a>
 <p style="text-align: center"><sup>Image by Stephane Rambaud for Fermob</sup></p>
 
