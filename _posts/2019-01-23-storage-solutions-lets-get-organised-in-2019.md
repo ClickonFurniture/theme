@@ -10,8 +10,6 @@ published: true
 post_date: 2019-01-23 10:40:02
 ---
 <a href="https://www.clickonfurniture.com.au/boxes-cabinet-tall"><img class="aligncenter size-large wp-image-2096" src="https://blog.clickonfurniture.com.au/wp-content/uploads/2019/01/lifestyle-11_4.jpg" alt="" width="650" height="650" /></a>
-
-<strong>A new year</strong>
 <p style="text-align: left">Did anyone else binge watch Tidying Up with Marie Kondo over the holidays? I'm not going to tell you to go that extreme, but a new year is a great opportunity to get your home in order. Avoid clutter and stress with these thoughtful storage solutions.</p>
 <a href="https://www.clickonfurniture.com.au/ethnicraft-teak-graphic-sideboard-4-door"><img class="aligncenter size-large wp-image-2092" src="https://blog.clickonfurniture.com.au/wp-content/uploads/2019/01/graphic-1-1024x485.jpg" alt="" width="650" height="308" /></a>
 <p style="text-align: left"><a href="https://www.clickonfurniture.com.au/living-room-furniture/sideboards"><strong>Sideboards</strong></a></p>
