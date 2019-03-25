@@ -11,7 +11,7 @@ post_date: 2019-03-25 11:56:15
 ---
 <p class="p1" style="text-align: center;"><span class="s1">Celebrate the new season by bringing friends and family together this Easter. To help you get into the festive mood we have out together an inspired celebration.</span></p>
 [embed]https://youtu.be/_rqhcxkc8hw[/embed]
-<h4 class="p1"><span class="s1"><b>What was the inspiration behind the shoot. </b></span></h4>
+<h4 class="p1"><span class="s1"><b>What was the inspiration behind the shoot? </b></span></h4>
 <p class="p1"><span class="s1">Our Easter with Ethnicraft shoot, <i>From the garden</i>, was inspired by the coming together of friends and family. It combines the appreciation of rich textures and the beauty from found and foraged objects. The centrepiece of the shoot, the dining setting, was created around the shared banquet style of dining, celebrating the fluidity of real life family gatherings and the often accompanying extra guest.</span></p>
 <a href="https://www.clickonfurniture.com.au/dining"><img class="aligncenter size-large wp-image-2143" src="https://blog.clickonfurniture.com.au/wp-content/uploads/2019/03/easter-edit-1024x350.jpg" alt="Easter edit dining" width="650" height="222" data-wp-pid="2143" /></a>
 <h4 class="p1"><span class="s1"><b>Which Ethnicraft pieces are heroed this season?</b></span></h4>
@@ -21,6 +21,7 @@ post_date: 2019-03-25 11:56:15
 
 <h4><a href="https://www.clickonfurniture.com.au/ethnicraft-oak-disc-round-side-table"><img class="aligncenter size-full wp-image-2145" src="https://blog.clickonfurniture.com.au/wp-content/uploads/2019/03/Cs81_7Qt.jpeg" alt="" width="667" height="1000" data-wp-pid="2145" /></a></h4>
 <h4></h4>
+&nbsp;
 <h4 class="p1"><span class="s1"><b>What does the perfect Easter gathering entail for the Clickon Team?</b></span></h4>
 <p class="p1"><span class="s1">This Easter we will be spending less time on social media and more time in the garden. While it takes time to prepare for a gathering the effort is well worth it when the company arrives. The gathering itself will consist of quality fresh produce, all of the carbs and of course chocolate.</span></p>
 <a href="https://www.clickonfurniture.com.au/homewares"><img class="aligncenter size-large wp-image-2147" src="https://blog.clickonfurniture.com.au/wp-content/uploads/2019/03/styling-easter-1024x509.jpg" alt="" width="650" height="323" data-wp-pid="2147" /></a>
