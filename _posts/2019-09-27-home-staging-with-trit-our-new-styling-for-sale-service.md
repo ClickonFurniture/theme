@@ -11,8 +11,8 @@ permalink: >
 published: true
 post_date: 2019-09-27 14:53:17
 ---
-If you’re ready to sell your home or investment property, there is no doubt you are looking for the best return possible return. Home staging is one of the most effective ways to achieve your property goals.
-<h6 style="text-align: center;"><a href="https://www.trithouse.com.au/homestaging"><img class="aligncenter size-large wp-image-2245" src="https://blog.trithouse.com.au/wp-content/uploads/2019/09/Home-Staging-1024x616.jpg" alt="Trit Home Staging_Clui Design" width="650" height="391" data-wp-pid="2245" /></a></h6>
+If you’re ready to sell your home or investment property, there is no doubt you are looking for the best return possible return. Home staging is one of the most effective ways to achieve your property goals.<a href="https://www.trithouse.com.au/homestaging"><img class="aligncenter size-large wp-image-2245" src="https://blog.trithouse.com.au/wp-content/uploads/2019/09/Home-Staging-1024x616.jpg" alt="Trit Home Staging_Clui Design" width="650" height="391" data-wp-pid="2245" /></a>
+
 Through our 14 years of experience across the furniture and design industry, we are well versed in maximising space and creating zones. We have helped countless customers get the most out of their home. Trit is excited to bring this experience to the Melbourne real estate market. Our expert styling and clever tricks will help buyers see the true potential of your property, and have them fall in love with your home.
 
 <a href="https://www.trithouse.com.au/homestaging"><img class="aligncenter size-large wp-image-2243" src="https://blog.trithouse.com.au/wp-content/uploads/2019/09/staging-1024x342.jpg" alt="Home Staging Example" width="650" height="217" data-wp-pid="2243" /></a>
@@ -25,4 +25,4 @@ First impressions count, and in this technology driven age, buyers are scouring 
 
 <a href="https://www.trithouse.com.au/homestaging"><img class="aligncenter size-large wp-image-2247" src="https://blog.trithouse.com.au/wp-content/uploads/2019/09/Home-Staging2-1024x341.jpg" alt="Trit Home Staging" width="650" height="216" data-wp-pid="2247" /></a>
 <h3>Contact Us</h3>
-Share in our signature vision for inspired living though this bespoke styling for sale service. For further information, including pricing, please <a href="https://www.trithouse.com.au/homestaging">view our website</a>. For any enquiries, please contact commercial@trithouse.com.au
+Share in our signature vision for inspired living though this bespoke styling for sale service. For further information, including pricing, please <a href="https://www.trithouse.com.au/homestaging">view our website</a>. For any enquiries, please use our <a href="https://trithouse.wufoo.com/forms/mqmhv6519ma650/" target="_blank" rel="noopener">web enquiry form</a>.
