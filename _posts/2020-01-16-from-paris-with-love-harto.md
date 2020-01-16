@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2020-01-16 13:32:24
 ---
-To celebrate the arrival of HARTÔ’s latest collection arriving here in Australia we share our five minute chat with Pauline Blanc at Maison et Objet late last year. HARTÔ truely is one brand that emulates the effortless Parisian style seen throughout Europe and we are excited to see these latest pieces illuminate the homes of our customers here in Australia.<span class="Apple-converted-space"> </span>
+To celebrate the arrival of HARTÔ’s latest collection arriving here in Australia we share our five minute chat with Pauline Blanc at Maison et Objet late last year. HARTÔ truly is one brand that emulates the effortless Parisian style seen throughout Europe and we are excited to see these latest pieces illuminate the homes of our customers here in Australia.<span class="Apple-converted-space"> </span>
 
 <a href="https://www.trithouse.com.au/brand/harto/gabin-bench"><img class="aligncenter size-large wp-image-2292" src="https://blog.trithouse.com.au/wp-content/uploads/2020/01/HARTO_BEAUREGARD_MARS2019-1692_1_HD.jpg" alt="" width="650" height="434" data-wp-pid="2292" /></a>
 <h4><b>This past year has has been a big one for for HARTÔ, how is Maison et Objet so far?</b></h4>
